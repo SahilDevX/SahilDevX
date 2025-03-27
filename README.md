@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **sahildange7057@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1u5bf3ZFd52yT1RsUgqW5_npL3FX9O23A/view?usp=sharing](https://drive.google.com/file/d/1u5bf3ZFd52yT1RsUgqW5_npL3FX9O23A/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1u5bf3ZFd52yT1RsUgqW5_npL3FX9O23A/view?usp=sharing](https://drive.google.com/file/d/1ZqLpF5QE6oSXET8DPHsH63e6KEWRiQok/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
